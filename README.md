@@ -36,7 +36,17 @@ This commands includes
 ![Screenshot 2025-05-17 114408](https://github.com/user-attachments/assets/b4f03f8a-6687-45b4-9998-12cc809d43b0)
 
 ![Screenshot 2025-05-17 114418](https://github.com/user-attachments/assets/77aa792f-4c28-4443-b4aa-ced1c036d50d)
+
 ![Screenshot 2025-05-17 114425](https://github.com/user-attachments/assets/61ed56df-0803-4f5e-98a1-3cdc65eb6174)
+
+![Screenshot 2025-05-17 114435](https://github.com/user-attachments/assets/8246d6fd-9a72-4e6d-ad79-1aa597fd3456)
+
+![Screenshot 2025-05-17 114442](https://github.com/user-attachments/assets/1becb460-4efd-471e-b28e-0e40312a31ca)
+
+![Screenshot 2025-05-17 114459](https://github.com/user-attachments/assets/e6c299c0-6bcd-4ccc-a9e0-5ef8d6f96448)
+
+
+
 
 
 
